@@ -16,7 +16,7 @@
 ## 👨‍👩‍👧‍👦 누가 참여하나요
 
 - 조재준 (jtree03, wowns0903@gmail.com)
-- 신은선 ()
+- 신은선 (eunsonny, unusual0218@gmail.com)
 - 오종택 (saengmotmi, ohjtack@gmail.com)
 - 김민정 ()
 
