@@ -18,7 +18,7 @@
 - 조재준 (jtree03, wowns0903@gmail.com)
 - 신은선 (eunsonny, unusual0218@gmail.com)
 - 오종택 (saengmotmi, ohjtack@gmail.com)
-- 김민정 ()
+- 김민정 (howdy-mj, hi.minjungkim@gmail.com)
 
 ## ✏️ 어떻게 진행하나요
 
